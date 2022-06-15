@@ -14,6 +14,7 @@ As you may know, English is my second language so sometimes I may be confused by
 
 I prefer straightforward talking and I am open to any thought/advice/comment on me. I would appreaciate if you can give me some advice both on personal life and career, especially regarding work.
 
+If there's anything I can help, just let me know. I am willing to help others.
 
 ## Things that make me annoyed
 
